@@ -1,1 +1,1 @@
-# Ai-bootcamp-
+# AI-BOOTCAMP-PRACTICALS
